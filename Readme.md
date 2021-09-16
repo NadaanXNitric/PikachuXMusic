@@ -5,7 +5,7 @@
 
 
 # Pɪᴋᴀᴄʜᴜ • Mᴜsɪᴄ👮
-💡 This is Innexia An Advanced Telegram CHAT Bot For Best AI Experience !! 🤖 
+💡 This is Nitric's An Advanced Telegram CHAT Bot For Best AI Experience !! 🤖 
 
 ![logo](https://telegra.ph/file/707fda22ee5dc349b50ab.jpg)
 #  💡Dᴇᴠᴇʟᴏᴩᴇᴍᴇɴᴛ•Sᴜᴩᴩᴏʀᴛ👥[Here !](https://t.me/Sanki_Bot_Support)
